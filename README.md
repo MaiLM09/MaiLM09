@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning code.
 - 🌱 I’m currently learning AI & ML.
 - 💞️ I’m looking to collaborate on projects to learn better.
-- 📫 Reach me @handeposh on ig.
+- 📫 Reach me @handeposh on ig but first send a message if you're from here.
 - 😄 Pronouns: She/Her.
   
 
