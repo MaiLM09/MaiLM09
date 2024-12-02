@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MaiLM09.
-- 👀 I’m interested in learning code.
-- 🌱 I’m currently studyingb AI & ML.
+- 👀 I’m interested in learning programming.
+- 🌱 I’m currently studying AI & ML.
 - 💞️ I’m looking to collaborate on projects to learn better.
 - 📫 Reach me @handeposh on ig but first send a message if you're from here.
 - 😄 Pronouns: She/Her.
